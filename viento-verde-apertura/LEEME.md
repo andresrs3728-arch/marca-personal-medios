@@ -1,4 +1,4 @@
-# Carruseles de apertura — Hotel Viento Verde (10-dic-2026)
+# Carruseles de apertura — Hotel Viento Verde (23-dic-2026)
 
 Láminas públicas para programar las publicaciones desde Metricool.
 Generadas el 20-nov-2026 con las fotos del hotel.
